@@ -2,10 +2,28 @@
 
 - DarkMatter LLC.
 - Metaverse Project.
-- Raymond Lei.
-- MCCC
+- Raymond Lei. Raymond Lee. Fort Lee. General Lee.
+- MCCC(M = C^3)
+- Matthew's name
 - Wendy
 - Jersey-[]
 - Route 1
 - New Jersey Serial Killer High Way = New Jersey Turnpike(Nash equilibrium with Nash. They get even)
+- Eaton-Town
+- 3dRose(no 3d printing)
+- Middle-Town
+- Ocean(Oakhurt probably was in the Ocean)
+- Navy Lab be: yall doesnt know I was a port?
+- Divine Masculine and Divine Feminine - Divinity Original Sin 2!
+- Industrial Garden State
+- Right Lane Exit(why? Big brother state be: cuz it is so tiny. Why do you even need highway!). It is so tiny we decides to go 85-95 mile/houur on highways.
+- New Jersey U-Turn
+- State Trooper in every town
+- Am I woke yet?
+- New Jersey Spy
+- Double Agent Asian
+- Einstein/Witten/Godel/
+- Nokia Bell Labs vs John Stewart Bell's theroem
+- Bell be like: I worked with Quatnum Information communication okay. Nokie be like: antenananannaa. We are high vibrational!!!!!
+- I was like: "Professor: do I really get to choose in stable marriage problem? "
 - 
