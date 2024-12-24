@@ -35,3 +35,4 @@
 - God's Cloud(Figurine) show up above my location.(MANGEIFICENT VIEW. UNVIERSE IS WATCHIGN NEW JERSEY)  (one in a life time show!)
 - We ARE PRO
 - HIGH PRICE HOUSE NO ONE CAN AFFORD!
+- Jersey Drones : Messiah birth Angles + Fireworks
