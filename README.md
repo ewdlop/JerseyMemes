@@ -27,4 +27,4 @@
 - Bell be like: I worked with Quatnum Information communication okay. Nokie be like: antenananannaa. We are high vibrational!!!!!
 - I was like: "Professor: do I really get to choose in stable marriage problem? "
 - Jersey barrier
-- Princeton - Indian infested Town. We get one betrayed and flee to Maryland. RAT AND COACHORACH
+- Princeton - Indian infested Town. We get one betrayed(betrayer)[New Jersey] and flee to Maryland.)(This type of grammar drives me nut. I swear I thought i was crazy) RAT AND COACHORACH
