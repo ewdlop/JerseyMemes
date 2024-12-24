@@ -26,4 +26,4 @@
 - Nokia Bell Labs vs John Stewart Bell's theroem
 - Bell be like: I worked with Quatnum Information communication okay. Nokie be like: antenananannaa. We are high vibrational!!!!!
 - I was like: "Professor: do I really get to choose in stable marriage problem? "
-- 
+- Jersey barrier
