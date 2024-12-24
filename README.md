@@ -16,23 +16,23 @@
 - Navy Lab be: yall doesnt know I was a port?
 - Divine Masculine and Divine Feminine - Divinity Original Sin 2!
 - Industrial Garden State
-- Right Lane Exit(why? Big brother state be: cuz it is so tiny. Why do you even need highway!). It is so tiny we decides to go 85-95 mile/houur on highways.
+- Right Lane Exit(why? Big brother state be: cuz it is so tiny. Why do you even need highway!). It is so tiny we decides to go 85-95 mile/houur on highways. ANYWAY WE GO!!!!
 - New Jersey U-Turn
 - State Trooper in every town
 - Am I woke yet?
 - New Jersey Spy
 - Double Agent Asian
 - Einstein/Witten/Godel/
-- Nokia Bell Labs vs John Stewart Bell's theroem
+- Nokia Bell Labs vs John Stewart Bell's theorem
 - Bell be like: I worked with Quatnum Information communication okay. Nokie be like: antenananannaa. We are high vibrational!!!!!
 - I was like: "Professor: do I really get to choose in stable marriage problem? "
 - Jersey barrier
 - Princeton - Indian infested Town. We get one betrayed(betrayer)[New Jersey] and flee to Maryland.)(This type of grammar drives me nut. I swear I thought i was crazy) RAT AND COACHORACH
 - Chinese Food
 - Money Laundry Business
-- Greek-looking 12 bibles disciples and castle-like cloud ! (one in a life time show!)
+- Greek-looking 12 bibles disciples and castle-like cloud ! (one in a lifetime show!)
 - Darkness come back and save me!(scare the heck out of me!)
-- God's Cloud(Figurine) show up above my location.(MANGEIFICENT VIEW. UNVIERSE IS WATCHIGN NEW JERSEY)  (one in a life time show!)
+- God's Cloud(Figurine) show up above my location.(MANGEIFICENT VIEW. UNVIERSE IS WATCHIGN NEW JERSEY)  (one in a lifetime show!)
 - We ARE PRO
 - HIGH PRICE HOUSE NO ONE CAN AFFORD!
 - Jersey Drones : Messiah birth Angles + Fireworks
