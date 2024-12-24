@@ -29,3 +29,8 @@
 - Jersey barrier
 - Princeton - Indian infested Town. We get one betrayed(betrayer)[New Jersey] and flee to Maryland.)(This type of grammar drives me nut. I swear I thought i was crazy) RAT AND COACHORACH
 - Chinese Food
+- Money Laundry Business
+- Greek-looking 12 bibles disciples and castle-like cloud ! (one in a life time show!)
+- Darkness come back and save me!(scare the heck out of me!)
+- God's Cloud(Figurine) show up above my location.(MANGEIFICENT VIEW. UNVIERSE IS WATCHIGN NEW JERSEY)  (one in a life time show!)
+- We ARE PRO
