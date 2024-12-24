@@ -27,3 +27,4 @@
 - Bell be like: I worked with Quatnum Information communication okay. Nokie be like: antenananannaa. We are high vibrational!!!!!
 - I was like: "Professor: do I really get to choose in stable marriage problem? "
 - Jersey barrier
+- Princeton - Indian infested Town. We get one betrayed and flee to Maryland. RAT AND COACHORACH
